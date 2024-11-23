@@ -1,6 +1,6 @@
 - 👋 Hi, I’m iyed acher 
 - 👀 I’m interested in programin and website devlepmont
-- 🌱 I’m currently learning javascript
+- 🌱 I’m currently learning html css javascript c++ python
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me: youwel found me in instagram:x1d0w_     
 - 😄 Pronouns: ...
