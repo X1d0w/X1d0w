@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me: you well found me in instagram:x1d0w_     
 - 😄 Pronouns: xad0w
-- ⚡ im 15 years old 
+- ⚡ im 16 years old 
 
 <!---
 X1d0w/X1d0w is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
